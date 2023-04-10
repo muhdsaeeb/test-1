@@ -1,1 +1,1 @@
-takde pape pun
+takde pape pun kot
